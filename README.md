@@ -25,4 +25,5 @@
 
 ## Connect With Me
 
+- LinkedIn : www.linkedin.com/in/daksh-upadhyay-1a679b2a8
 - Email : rosdaksh@gmail.com
